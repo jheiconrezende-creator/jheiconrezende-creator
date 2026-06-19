@@ -15,4 +15,4 @@ Qualquer dúvida entre em contato
 ![](https://media.tenor.com/U94DkrDstecAAAAd/67-angry-bird.gif)
 ![](https://media.tenor.com/VpTL_LfJpcYAAAAC/67.gif)
 ![](https://media.tenor.com/EqG4iEj7ToEAAAAd/passo-bem-solto-papagaio.gif)
-![](https://media.tenor.com/w8fU_ETPKPgAAAAd/kfc-bird.gif)
+![](https://media.tenor.com/pigxI4pcPsYAAAAi/gold-dabbing-dan-spray-jett.gif)
